@@ -1,0 +1,1 @@
+patikadev ödev1 umarım faydalı olmuştur.
